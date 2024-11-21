@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+So far I have no idea what to do with this account and it could be dead soon... or very alive?
+
 <!--
 **Beabro/Beabro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
